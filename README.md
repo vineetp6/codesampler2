@@ -1,1 +1,1 @@
-# codesampler2
+# codesampler2/IT trainer by profession
